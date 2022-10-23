@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kakapapa252
-- 👀 I’m interested in Data Analytics
-- 🌱 I’m currently learning Economics, Finance and marketing
+- 👀 I’m interested in Abhimanyu Sehrawat
+- 🌱 I’m currently learning how to be a better boyfried to Abhimanyu Sehrawat.
 - 📫 Reach me at kartikay252@gmail.com
 
 <!---
